@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tchatora
 
-Intersted in the intersection of agriculture, sustainability, and economics.
+Interested in the intersection of agriculture, sustainability, and economics.
 
 Currently working in commodity trades for a third party inspection and certification company.
 
